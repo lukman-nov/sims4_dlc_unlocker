@@ -9,7 +9,7 @@ To get started with Sims 4 DLC Unlocker, follow these simple steps:
 4. **Enjoy the game!**
 
 **Description:**  
-🚀 **Anadius Unlocker ** is a best currently available way to unlock Sims 4 Expannsions and keep them up-to-date while also being able to get access to online features like gallery.
+🚀 **Anadius Unlocker** is a best currently available way to unlock Sims 4 Expannsions and keep them up-to-date while also being able to get access to online features like gallery.
 
 **Keywords:** sims 4 dlc unlocker, sims 4 unlock expansions, sims 4 free dlc, sims 4 free expansion packs, anadius unlocker, ea dlc unlocker
 
